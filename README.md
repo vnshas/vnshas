@@ -1,4 +1,4 @@
-## # 👩🏻‍💻 Vinicius Silva
+## #  Vinicius Silva
 
 **`Desenvolvedora FullStack`**
 
